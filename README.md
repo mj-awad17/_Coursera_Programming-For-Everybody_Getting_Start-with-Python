@@ -52,4 +52,5 @@ In this course you will learn about the basic of python 🐍 programming languag
 
 **Note**:- If you interseted in this courser and want free to access it. 🤗 🤗 🤗 🤗
 
-            I will help you just text me. 😎 😎
+            I will help you just mail me. 😎 😎
+            jawadrana660@mail.com
